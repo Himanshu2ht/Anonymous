@@ -1,3 +1,0 @@
-# Images
-- I upload all the images i need in my works here...
-- You should not eavesdrop here 😑😑😑
